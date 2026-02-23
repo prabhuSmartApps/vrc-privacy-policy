@@ -1,1 +1,0 @@
-# vrc-privacy-policy
